@@ -12,7 +12,7 @@
  <img src="https://files.catbox.moe/tryaft.jpg" "width="" height="80"> <br />
  $\color{#9c3636}{“~..~Like~night,~you'll~disappear~”}$ <br />
  $\color{#9c3636}{────~(˶˃~ᵕ~˂˶)~────}$<br />
- $\color{#7a4141}{ᯓ~THE~Denji~ever~.ᐟ.ᐟ~➜}$ <a href="https://github.com/KittenChanCorruptionArc"><img src="https://files.catbox.moe/cmbjbr.gif" "width="100" height="20" > </a>  <br />
+ $\color{#7a4141}{ᯓ~THE~Denji~ever~.ᐟ.ᐟ~➜}$ <a href="https://github.com/ChainzawMan"><img src="https://files.catbox.moe/cmbjbr.gif" "width="100" height="20" > </a>  <br />
  <img src="https://files.catbox.moe/pxmbzy.png" "width="" height="10"> <br />
  <img src="https://files.catbox.moe/v1rz97.jpg" "width="" height="53"> <br />
  $\color{#5b1e1e}{-~13~and~+~21~iwc~;~Further~dni~/~extra~info}$ <br />
