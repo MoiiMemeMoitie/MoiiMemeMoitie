@@ -19,6 +19,4 @@
  $\color{#5b1e1e}{on~my~rentry~below~.ᐟ.ᐟ~Strawpage~here~➜~.}$ <a href="https://linnethin.straw.page"><img src="https://files.catbox.moe/go39jf.gif" "width"" height="20"> </a> <br />
  <a href="https://rentry.co/wherestheexit"><img src="https://files.catbox.moe/m3nhpf.gif" "width="" height="50" > </a> <br />
  <img src="https://files.catbox.moe/9wqua7.jpg" "width="" height="150"> <br />
-<sub/> $\color{#c04a4a}{₊˚⊹♡~`ᶻ~𝘇~𐰁~...႔~~႔}$</sub> <br />
-<sub/>$\color{#c04a4a}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br /> <br />
 </div>
