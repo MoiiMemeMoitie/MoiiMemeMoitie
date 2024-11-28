@@ -18,5 +18,5 @@
  $\color{#293496}{~on~my~rentry~below~.ᐟ.ᐟ~Strawpage~here~➜~}$ <a href="https://linnethin.straw.page"><img src="https://wilardo.crd.co/assets/images/gallery18/2db40534_original.gif?v=7d859d65" "width"" height="20"> </a> <br />
  <a href="https://rentry.co/wherestheexit"><img src="https://64.media.tumblr.com/78939bb8434e681b314418a73d0e8f06/4ac0818eeca790ee-72/s250x400/040f94300a0d2bc73a2b465bd6179b4b7cf5e3ed.gifv" "width="" height="45" > </a> <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/manaaa.jpg" "width="" height="150"> <br />
- <img src="https://github.com/user-attachments/assets/930e117a-edd9-4827-89d6-11a323f26429" "width="" height="35"> <br />
+ <img src="https://github.com/user-attachments/assets/930e117a-edd9-4827-89d6-11a323f26429" "width="" height="20"> <br />
 </div>
