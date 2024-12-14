@@ -8,9 +8,9 @@
 <br/>
  $\color{#293496}{ᯓ~꒰~Mana's~biggest~fan~꒱~}$ <br />
  $\color{#181c94}{⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺}$<br />
- $\color{#293496}{~“~Chances~are~..~”}$ <br />
+ $\color{#293496}{~“~僕はなぜ 風の様に雲の様に~..~”}$ <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/ok.png" "width="" height="120"> <br />
- $\color{#181c94}{“~..~Like~night,~you'll~disappear~”}$ <br />
+ $\color{#181c94}{“~..~あの空へと浮かぶ羽がない なぜ~”}$ <br />
  $\color{#293496}{⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺}$<br />
  $\color{#2027e8}{ᯓ~THE~Denji~ever~.ᐟ.ᐟ~➜}$ <a href="https://github.com/ChainzawMan"><img src="https://64.media.tumblr.com/e25b894efab61e1f34206fc50e9dd260/6699c0a9b9acb8bd-4f/s75x75_c1/c73c0d21796d24b1c8de5703170cf29f93c11152.gifv" "width="100" height="20" > </a>  <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/tumblr_bacc9be82e02371c35d7074f8a8a227c_e5d78697_540.png" "width=50"" height=90"> <br />
