@@ -1,7 +1,5 @@
 <p align="center">
-<a href="https://visitcount.itsvg.in">
-  <img src="https://visitcount.itsvg.in/api?id=WheresTheExit&label=%E2%8B%86%CB%99%E2%9F%A1%20%E2%80%94&color=6&icon=9&pretty=false" />
-</a> <br />
+</a>
 </a>
 <img src="https://file.garden/ZorENG263zPWFUDG/tumblr_ea03604d242f41f4f4a53ee72fa70a15_1704e810_640.png" "width="200" height="120"> <br />
  <img src="https://file.garden/ZorENG263zPWFUDG/ok(1).png" "width="" height="45">
